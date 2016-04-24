@@ -14,4 +14,4 @@ We stand in solidarity with other allied liberation struggles and hope that our 
 
 We will resist the closure of physical queer spaces and support any organisations that share this aim.
 
-We will attempt to promote organisations that provide health and support services to the LGBTQIA community, that are both safe and ethicalTer
+We will attempt to promote organisations that provide health and support services to the LGBTQIA community, that are both safe and ethical.
